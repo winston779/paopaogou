@@ -1,6 +1,6 @@
 # 泡泡狗机场官网地址
 
-最新地址：[paopao.dog](https://www.paopao.dog/#/register?code=dZk7UrjM)
+最新地址：[paopao.dog](https://03071754.paopaogou001.cloud/#/register?code=dZk7UrjM)
 
 ## 泡泡狗介绍
 
